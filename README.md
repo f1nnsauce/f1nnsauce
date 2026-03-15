@@ -4,7 +4,7 @@ My name is Finn, but I go by f1nnsauce, finnsauce and some other variations. I r
 
 <br>
 
-Pronouns: anything.
+Pronouns: he/him.
 
 How to reach me: just send an e-mail to f1nnsauce.business@proton.me!
 
